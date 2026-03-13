@@ -1,0 +1,1 @@
+Anadi (Drider) do [[Dormitório Espira]]. Mora com dois filhos no maior quarto do dormitório.

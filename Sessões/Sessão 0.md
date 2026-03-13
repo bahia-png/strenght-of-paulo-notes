@@ -1,0 +1,6 @@
+---
+dg-publish: true
+---
+Estamos indo para [[Magaambya]], na cidade de [[Nantambu]] buscar conhecimento mágico.
+Nós ([[Gavlan]], [[Shienn]], e [[Faiz]]) fomos recebidos pelo professor [[Takalu Ot]], que nos entrevistou sobre nossos motivos, interesses e prospectos de futuro. Depois da entrevista, nos foram aplicados vários testes de aptidão. Nós passamos em todos os testes, apesar de não usarmos magia.
+Depois de reforçar novamente a importância das questões da entrevista, fomos recebidos na academia e conhecemos [[Esi Djana]] e [[Chizire]], que nos apresentaram o dormitório e escolhemos nossos quartos. Também conhecemos outra colega de quarto, [[Âncora-Raiz]], mas ela teve um ataque de pânico e fugiu..
