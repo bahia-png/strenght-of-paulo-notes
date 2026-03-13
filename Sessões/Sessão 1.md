@@ -1,6 +1,3 @@
----
-dg-publish: true
----
 No nosso primeiro dia, nos foram dadas instruções para nos apresentarmos no refeitório e confeccionar as [[contas]] que usaríamos para representar [[Magaambya]]. De volta ao [[Dormitório Espira]], conversamos um pouco com nossos colegas e descobrimos que havia uma infestação de formigas recentemente no dormitório. [[Gavlan]] foi tomar um banho e foi atacado por duas pilhas de roupa sencientes (???). As pilhas de roupas eram Spellskeins, parte do sistema de defesa de [[Magaambya]] contra intrusos. Após apanhar vergonhosamente de amontoados de vestimenta, nós fomos para de encontro ao mercador [[Xhokan]] e recebemos um tratamento por conta da casa e nossa mesada de 44G.
 Ao chegarmos ao refeitório, fomos recebidos por [[Raytram]], que nos deu nossa primeira missão como parte do serviço social da academia, relacionada a [[Escribas da Chuva]]. Nossa missão era ir até [[Nantambu]] ajudar uma senhora com sua galinha mágica. [[Makena]] foi a vendedora que nos vendeu 5 [[galinhas Ojofiri]], num mercado que aparentemente não fazia negócio com estudantes de [[Magaambya]]. Agora temos uma galinha de estimação chamada [[Marilou]].
 Depois de retornarmos ao dormitório, tivemos uma breve [[resenha]] com todos os membros, e [[Shienn]] surpreendentemente conseguiu se aproximar mais de [[Âncora-Raiz]], apesar de falar nada com nada.
