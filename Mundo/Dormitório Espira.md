@@ -2,6 +2,7 @@ Alunos do dormitório Espira
 - [[Gavlan]]
 - [[Shienn]]
 - [[Faiz]]
+- [[Scypher]]
 - [[Chizire]]
 - [[Esi Djana]]
 - [[Âncora-Raiz]]

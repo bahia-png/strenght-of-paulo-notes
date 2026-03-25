@@ -1,0 +1,1 @@
+Uma aluna prodígio de [[Magaambya]]. Pertence ao [[Dormitório Espira]].

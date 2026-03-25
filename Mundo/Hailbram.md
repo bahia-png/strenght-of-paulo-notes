@@ -1,0 +1,2 @@
+Amizade:
+[[Faiz]]: 1
