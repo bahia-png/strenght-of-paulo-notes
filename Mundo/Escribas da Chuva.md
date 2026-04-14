@@ -1,7 +1,7 @@
-> Cascade Bearers
-> [Symbol](https://kanka-user-assets.s3.eu-central-1.amazonaws.com/organisations/NWBNxWnKFIBRIUJeiXDOhzPx5hNn6tqwHRZVdBWL.jpg)
-> Cascade Bearers esteem **imagination**, from the dreams of the most visionary magical theorists to the innovations of creative problem-solvers of all stripes.
-> Members of the academically focused Cascade Bearers are dedicated to the advancement of magical theory. Their philosophical approach to magic reaches into other magical traditions but still has a practical bent.
-> Associated skills: Arcana, Occultism, Religion
-> Associated lore: Academia lore
-> Associated feat: Canny Acumen
+> Rain-Scribes
+ [Updated symbol](https://th.kanka.io/3Rh2IRUgoEUMw7KNulAD16lt-xg=/400x400/smart/src/organisations/MS2Xy7Hn2dGJ4RfVn9twDd8z7aN7rqb3eJ0jnZ6D.jpg)
+> Rain-Scribes value **adaptability** in thoughts and deeds, as well as a willingness to admit errors and learn from past mistakes.
+> Rain-Scribes explore new territory and make sure it remains accessible for future travelers. They chart and manage wilderness areas, establish and maintain infrastructure, and guide travelers. They are also keenly aware of balance, both natural and societal.
+> Associated skills: Medicine, Nature, Survival
+> Associated lore: Lore on a specific terrain, ex. Forest Lore
+> Associated feat: Fleet

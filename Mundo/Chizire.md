@@ -1,3 +1,3 @@
 Estudante de [[Magaambya]], vende materiais alquímicos e destilados.
 Amizade:
-- [[Gavlan]]: 1
+- [[Gavlan]]: 2
