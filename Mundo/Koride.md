@@ -1,0 +1,1 @@
+Professora especialista em insetologia
