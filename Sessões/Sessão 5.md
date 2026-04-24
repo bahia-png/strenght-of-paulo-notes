@@ -1,3 +1,4 @@
+## Começo do sábado
 Começamos o dia recebendo panfletos anunciando um suposto [[Torneio de Starday]], um torneio que acontece todo [[Starday|sábado]] onde os participantes enfrentam construtos de Leshy.
 Após isso, tivemos a primeira aula de magia básica com o professor [[Zuma]], que dá uma aula bastante densa e direta, mas tira um tempo para nos interrogar sobre nossa batalha contra os gremlins no último sábado, que o restante da classe demonstrou considerável interesse. No final da aula, participamos em um ritual do professor em que todos fizemos uma tatuagem mística temporária, uma boca (de fogão), que nos permitiu nos conectar de certa forma e ouvir alguns pensamentos um do outro.
 Com isso começa nosso primeiro mês de aulas em [[Magaambya]], em que vamos continuar nossos estudos e perquisitos.
