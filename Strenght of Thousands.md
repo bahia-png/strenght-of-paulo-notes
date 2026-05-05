@@ -6,3 +6,5 @@
 - [[Sessão 4]]
 - [[Sessão 5]]
 - [[Sessão 6]]
+- [[Sessão 7]]
+- [[Sessão 8]]

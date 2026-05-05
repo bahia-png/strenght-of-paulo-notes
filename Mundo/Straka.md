@@ -1,0 +1,1 @@
+Straka Zavattari é uma Tengu psíquica aluna do [[Dormitório Espira]] de [[Magaambya]]

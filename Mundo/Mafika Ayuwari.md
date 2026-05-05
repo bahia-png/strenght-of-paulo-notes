@@ -1,0 +1,1 @@
+Professor de [[Magaambya]] especialista em combate corpo-a-corpo, e supervisor do [[Torneio de Starday]]
