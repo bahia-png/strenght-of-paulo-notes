@@ -1,7 +1,7 @@
 Alunos do dormitório Espira
 - [[Gavlan]]
 - [[Shienn]]
-- [[Faiz]]
+- [[Hunter]]
 - [[Aidan]]
 - [[Straka]]
 - [[Chizire]]

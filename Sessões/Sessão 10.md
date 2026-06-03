@@ -1,0 +1,3 @@
+## A Caverna (não a de Platão)
+O mapa que encontramos se referia à [[Magaambya]] com alguns locais destacados. Dentre eles, particularmente o [[Dormitório Espira]] estava destacado com mensagens implicando que alguém chamado [[Urbel]] seria enviado para atacar o dormitório e matar "eles".
+Ao continuarmos investigando a caverna, ouvimos um grito de dor e corremos para ajudar, encontrando nossos colegas [[Okoro]], [[Ignaci]] e [[Tzeniwe]], feridos e sendo atacados por abelhas gigantes. Depois de ajuda-los, retornamos a [[Magaambya]] para que pudessem ser tratados, descansamos, e avisamos os professores dos nossos achados antes de retornar a caverna no dia seguinte.

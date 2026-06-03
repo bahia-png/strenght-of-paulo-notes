@@ -1,0 +1,2 @@
+Ex-aluno de [[Magaambya]] expulso por ter praticado extermínio contra os gremlins da região. Seu corpo tem uma aparência de pedra e ele é capaz de atravessar paredes e invocar lacaios de pedra.
+Foi descoberto que ele estaria ameaçando e ordenando os gremlins do subterrâneo a atacar [[Magaambya]] e seus alunos, em particular os alunos do [[Dormitório Espira]], supostamente com intenções de vingança. além de força-los a cavar túneis suspeitos ao longo do território da universidade.

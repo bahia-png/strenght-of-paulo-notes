@@ -1,2 +1,2 @@
 Amizade:
-[[Faiz]]: 1
+[[Hunter]]: 1
